@@ -2,10 +2,7 @@
 
 ## Morning Planning
 
-## Review
 
-
-## Morning Planning
 # Daily Learning
 
 ## Morning Planning
